@@ -1,0 +1,1 @@
+# loja-dos.guri
